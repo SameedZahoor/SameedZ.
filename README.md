@@ -6,6 +6,7 @@
 - 👯 I’m looking to collaborate with other designers & developers
 - 🥅 2022 Goals: Learn more about web3
 - ⚡ Fun fact: I love to draw and play golf on weekends.
+- 📫 Connect with me on linkedIn:: https://www.linkedin.com/in/sameed-zahoor-970954226/
 
 ### Languages and Tools:
 
